@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Hossein-Moosavi-Shoar
+- 👀 I’m interested in Heat transfer and fluid dynamics. I do coding stuff in this feild!
+- 🌱 I’m currently learning about non-newtonian droplets physics and more codes are under way....
+- 💞️ I’m looking to collaborate on projects involving machine learning used in fluid mechanic.
+- 📫 How to reach me ? Easy🤙 ➡️ 1- shm137932@gmail.com or ➡️ 2- https://www.linkedin.com/in/hosseinmoosavii/ ➡️ 3-https://t.me/dragon3248
+- ⚡ Fun fact!? Every fact is fun🙂,if not!? It is not a fact.
